@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m blockchain ,webdeveloper developer with huge intrest in crypto space<br>👯 I’m looking for jobs in web3 space<br>🤝 I’m looking for help with<br>🌱 I’m currently improving my skills in blockchain<br>💬 shoot me an Email or me on LinkedIn ;) <br>⚡ Fun fact
+🔭 I’m blockchain ,webdeveloper developer with huge intrest in crypto space<br>👯 I’m looking for jobs in web3 space<br>🤝 <br>🌱 I’m currently improving my skills in blockchain<br>💬 shoot me an Email or  on LinkedIn ;) <br>⚡ mr.aneez04@gmail.com
 
 
 ## 🌐 Socials:
